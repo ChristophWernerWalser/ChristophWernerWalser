@@ -1,28 +1,28 @@
 Hello, my name is Christoph Werner, I am passionate about product management. 
 
-Contact
+Contact:
 6616 Losone / CH
 +41764256336 (Mobile)
 chwernerwalser@gmail.com
 www.linkedin.com/in/christoph-werner-walser (LinkedIn)
 
-Top Skills
+Top Skills:
 Telekommunikation
 Produktmanagement
 Projektmanagement
 
-Languages
+Languages:
 Italienisch (Professional Working)
 Deutsch (Native or Bilingual)
 Englisch (Professional Working)
 
-Certifications
+Certifications:
 Einführung ins Projektmanagement
 
-Christoph Werner
+
 Productmanager Telecom bei Diamond SA - the fiber meeting
 Losone, Ticino, Switzerland
-Experience
+Experience:
 Diamond SA - the fiber meeting
 9 years 3 months
 
